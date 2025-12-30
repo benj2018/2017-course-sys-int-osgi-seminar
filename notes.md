@@ -1,4 +1,4 @@
 
-adjust content
-Ux48PJxak2RExt2Xd977Qwfnu9fIyg
-2017-08-04T07:13:59Z
+minor cleanup
+2l5NMlWX5fEbxFWwdvuZGAyyX40N9X
+2018-06-18T18:00:07Z
