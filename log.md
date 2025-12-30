@@ -1,4 +1,4 @@
 
-update notes
-x0RRbmX8ouEq98VrfHN2K9cj9779De
-2018-12-09T18:21:11Z
+minor cleanup
+sFlMtxjAh3IHPMx4qvvhEoX2ZWL24j
+2018-01-07T14:39:23Z
