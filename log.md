@@ -1,4 +1,4 @@
 
-minor cleanup
-Fokgt9Ur8341dcDs488On6IH3ZFh3S
-2019-08-12T11:30:26Z
+update notes
+bzqTYG7lE6qOOLDDG6aVpOj7gLE4tN
+2019-08-26T19:11:46Z
